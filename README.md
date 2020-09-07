@@ -1,0 +1,1 @@
+# frydayy.github.io
